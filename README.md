@@ -1,2 +1,0 @@
-# janejacobs
-Jane Jacobs
